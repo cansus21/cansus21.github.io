@@ -1,1 +1,0 @@
-# AryaErgin.github.io
